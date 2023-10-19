@@ -15,3 +15,5 @@ Also if you skid this give me credits
 
 ## Warning
 All of these tools are used by your own risk, i do not take responsiblity for any of your actions.
+ cheaked 100
+ 
